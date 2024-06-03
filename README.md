@@ -1,4 +1,4 @@
-## MEU NOME é GABRIEL
+## MEU NOME É GABRIEL
 - tenho 17 anos 
 - gosto de lasanha de carne muida
 - eu tenho uma treke
